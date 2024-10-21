@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @kibildungspartner
+- 👀 I’m interested in educational technologies and digital learning solutions.
+- 🌱 I’m currently learning about artificial intelligence and its applications in education.
+- 💞️ I’m looking to collaborate on projects that promote innovative learning methods.
+- 📫 How to reach me: kontakt@joachimlorenz.digital or via LinkedIn: https://www.linkedin.com/in/joachimlorenz/ .
+- 😄 Pronouns: He/Him.
+- ⚡  Fun fact: I'm a fan of poetry because I believe that language is the mathematical expression of thought!
